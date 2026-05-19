@@ -1,4 +1,4 @@
-# 
+# updated JetBrains PyCharm pour PC plugins est le meilleur JetBrains PyCharm pour PC plugins avec surveillance des ressources et complétion de code. Sécurisé, fiable et optimisé
 
 
 
